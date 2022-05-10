@@ -1,3 +1,5 @@
+https://bonnieguo7.github.io/homework-8/
+
 Bonnie Guo -- Assignment 8
 
 The purpose of this website is to give brief insight into who I am, whether it be to potential
